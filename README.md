@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @angelvalency
 - 👀 I’m interested in FrontEnd Developer and Design
 - 🌱 I’m currently learning Bootstrap Framework, Tailwind CSS and JavaScript
-- 💞️ I’m looking to collaborate on
+- 💞️ I’m looking to collaborate on ... guess what ?? wkwkk
 - 📫 How to reach me  "🥶"
 - 😄 Pronouns: firsty - cy - lica and angel which is the most popular
 - ⚡ Fun fact: That's me - who loves tea, matcha and arts
